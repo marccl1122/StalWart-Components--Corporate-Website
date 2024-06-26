@@ -36,10 +36,6 @@ At Stalwart Components, we're passionate about creating innovative solutions for
 
 Want to learn more about Stalwart Components or have a question about our products and services? Contact us at [szcomponents@gmail.com](mailto:szcomponents@gmail.com) or follow us on social media:
 
-* Twitter: [@szcomponents](https://twitter.com/szcomponents)
-* Instagram: [@szcomponents](https://www.instagram.com/szcomponents/)
-* Facebook: [@szcomponents](https://www.facebook.com/szcomponents/)
-
 ### Join Our Community
 
 Stay up-to-date with the latest news, product releases, and promotions by subscribing to our newsletter:
